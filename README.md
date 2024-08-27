@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ChristoErasme
-- 👀 I’m interested in education innovation design thinking
+- 👀 I’m interested in education, innovation and design thinking
 - 🌱 I’m currently working at Metropole de Lyon
 - 💞️ At Erasme LivingLab
 - 😄 and SecondLab [VR]
